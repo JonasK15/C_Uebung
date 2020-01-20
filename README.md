@@ -282,4 +282,4 @@ Reru
 Reru 
 Reru 
 Reru 
-https://giphy.com/explore/kakyoin-noriaki
+https://giphy.com/gifs/6qjpWQ471K3xS
